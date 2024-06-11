@@ -10,3 +10,5 @@ I am interested in IT industry.
 <<<<<<< HEAD
 I like to watch movies and korean drama.
 I love BLACKPINK.
+I like KPOP.
+My favorite food is koream food and italian food 
